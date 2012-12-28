@@ -1,2 +1,1 @@
-study
-=====
+shared with guys ...
